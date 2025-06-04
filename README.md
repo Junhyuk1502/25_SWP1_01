@@ -1,1 +1,2 @@
-# DEMO: my name is JUN
+20252418
+choi junhyuk	
